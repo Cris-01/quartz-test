@@ -1,6 +1,10 @@
----
-title: Welcome to Quartz
----
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+# Sezioni
+
+- Recap sessioni - [[Sessione 1]]
+- Luoghi - [[Hotel]]
+- NPC - [[Henry Rutfill]]
+- Oggetti - [[Elenco cassetta di sicurezza]]
+- PG - [[Theodor Miller]]
+
+
