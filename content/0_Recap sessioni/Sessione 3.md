@@ -14,7 +14,7 @@ Nel distretto di polizia si trova anche l'archivio ([[Archivio del distretto di 
 
 Dalle ricerche pare che tutti i proprietari delle cassette fossero o morti o non in città al momento della rapina.
 
-Indaghiamo su [[Henry Rutfill]], nella azienda dove lavorava. Dipendenti italo-americani.
+Indaghiamo su [[Henry Ruthfild]], nella azienda dove lavorava. Dipendenti italo-americani.
 Parliamo con un uno dei responsabili (accento siciliano?), ci fa sapere che Herny era un attaccabrighe e ci invita a parlare col **signor Pennesi**, ovvero la persona che ha licenziato Henry.
 
 "Zaga", locale alla moda che frequentava Henry Rutfill (potrei ricordare male)

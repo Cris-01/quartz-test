@@ -18,7 +18,7 @@ Omicidi:
 
 [[O’Brian Joseph]] 9 ottobre, trovato morto vicolo
 
-[[Henry Rutfill]] 18 ottobre, trovato morto in casa buttato su un materasso
+[[Henry Ruthfild]] 18 ottobre, trovato morto in casa buttato su un materasso
 
 (Nota: entrerà in vigore tra pochi mesi la legge sul proibizionismo, Legge Woldstat 28 ottobre)
 
