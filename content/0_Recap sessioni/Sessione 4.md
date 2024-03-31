@@ -1,8 +1,8 @@
 (Data 21/03/2024)
 
-Andiamo al cimitero del Calvario. Poche macchine parcheggiate; cinta di mura alta 2,5 metri; cancello semi-aperto; pioggia media-intensità.
+Andiamo al [[Cimitero del Calvario]]. Poche macchine parcheggiate; cinta di mura alta 2,5 metri; cancello semi-aperto; pioggia media-intensità.
 Incontriamo il becchino Johan ([[Johan, becchino del cimitero]]), un uomo magro con felpa e giaccone, con un vecchio cane con lui nell'ufficio.
-Ci facciamo indicare la sezione dove è presenta la tomba di Danarosa Eldas.
+Ci facciamo indicare la sezione dove è presenta la tomba di [[Danarosa Eldas]].
 Theodor, il Colonnello e il mago Crisantemo vanno alla tomba, mentre l'ispettore Vasco resta col becchino.
 
 Lapide: 21 settembre 1881 - 3 maggio 1920 (?!)
