@@ -1,0 +1,1 @@
+Nel bauletto non c'è nulla ma esaminando bene il solco lasciato dal terriccio all'interno, sembrerebbe che ci fosse qualcosa all'interno delle dimensioni di 7cm di lunghezza, 1cm di larghezza. L'altezza viene intuita dal mago Crisantemo che capisce che per rimanere fisso e non cadere l'oggetto doveva essere molto basso (1 o 2 cm) per cui 7cm x 1cm x 1cm 

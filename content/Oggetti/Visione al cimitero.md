@@ -1,0 +1,2 @@
+Sei sul pavimento di un qualche luogo al chiuso. Hai la vista annebbiata; ti fa male l'occhio; ti tocchi con la mano la faccia, vedi la tua mano sporca di sangue. Senti delle risate intorno a te; varie voci; ti senti dolorante; persone indistinte intorno a te; senti un calcio colpirti; sei supino; vieni tirato dal bavero, in piedi, vedi un volto davanti a te che riconosci ([[Henry Ruthfild]]).
+Ti senti dire "Stupida femminuccia, quelli della vostra razza manderanno in malora questo paese"

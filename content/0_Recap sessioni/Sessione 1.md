@@ -22,7 +22,7 @@ Omicidi:
 
 (Nota: entrerà in vigore tra pochi mesi la legge sul proibizionismo, Legge Woldstat 28 ottobre)
 
-Parlando col cameriere Kevin, si viene a sapere che ci sono state risse a Downtown
+Parlando col cameriere [[Kevin, dipendente dell'hotel]], si viene a sapere che ci sono state risse a Downtown
 
 Commissario Pickson abita all’8°piano del palazzo di fronte l’hotel
 
