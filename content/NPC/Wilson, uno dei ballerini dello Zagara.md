@@ -1,0 +1,1 @@
+Viene fermato dal mago per chiedere informazioni e sapere dove si trova l'ufficio del proprietario.

@@ -1,0 +1,1 @@
+Paul si occupa di truccare e fare la barba al [[Mago Crisantemo]] prima del suo spettacolo iniziale al [[Locale Zagara]]
