@@ -14,7 +14,7 @@ Nel distretto di polizia si trova anche l'archivio ([[Archivio del distretto di 
 
 Dalle ricerche pare che tutti i proprietari delle cassette fossero o morti o non in città al momento della rapina.
 
-Indaghiamo su [[Henry Ruthfild]], nella azienda dove lavorava. Dipendenti italo-americani.
+Indaghiamo su [[Henry Ruthfield]], nella azienda dove lavorava. Dipendenti italo-americani.
 Parliamo con un uno dei responsabili il ([[Signor Caruso (il siciliano)]]), ci fa sapere che Henry era un attaccabrighe e ci invita a parlare col [[Signor Pennisi]], ovvero la persona che ha licenziato Henry.
 
 "[[Locale Zagara]]", locale alla moda dove potremmo trovare il signor Pennisi

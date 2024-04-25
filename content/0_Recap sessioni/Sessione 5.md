@@ -5,12 +5,12 @@ Gli consegniamo l'autorizzazione ad esaminare la tomba.
 
 Prima di andare alla tomba prendiamo alcuni attrezzi dal capanno (vanghe, un sacco di iuta, e il [[Mago Crisantemo]] dei chiodi che ripone in un vasetto).
 [[Colonnello Napoleon DeWolfe]] cerca delle tracce intorno alla tomba ma fa un fallimento critico che si manifesta con l'[[Ispettore Vasco Gallo]] che calpesta il terreno rovinando qualunque prova potesse esserci.
-[[Theodor Miller]] scava nel terreno con la vanga; ad una 70ina di cm di profondità troviamo un bauletto in legno, 50cm X 30cm molto semplice con chiavistello che lo tiene chiuso ma nessuna serratura.
+[[Theodore Miller]] scava nel terreno con la vanga; ad una 70ina di cm di profondità troviamo un bauletto in legno, 50cm X 30cm molto semplice con chiavistello che lo tiene chiuso ma nessuna serratura.
 Il Colonnello apre il bauletto e tutti facciamo in tiro di sanità dopo l'apertura:
 Theodore e l'Ispettore Vasco lo superano mentre il Colonnello e il Mago Crisantemo no e svengono a terra per un paio di secondi avendo entrambi la stessa visione:
 
 -------
-sei sul pavimento di un qualche luogo al chiuso. Hai la vista annebbiata; ti fa male l'occhio; ti tocchi con la mano la faccia, vedi la tua mano sporca di sangue. Senti delle risate intorno a te; varie voci; ti senti dolorante; persone indistinte intorno a te; senti un calcio colpirti; sei supino; vieni tirato dal bavero, in piedi, vedi un volto davanti a te che riconosci ([[Henry Ruthfild]]).
+sei sul pavimento di un qualche luogo al chiuso. Hai la vista annebbiata; ti fa male l'occhio; ti tocchi con la mano la faccia, vedi la tua mano sporca di sangue. Senti delle risate intorno a te; varie voci; ti senti dolorante; persone indistinte intorno a te; senti un calcio colpirti; sei supino; vieni tirato dal bavero, in piedi, vedi un volto davanti a te che riconosci ([[Henry Ruthfield]]).
 Ti senti dire "Stupida femminuccia, quelli della vostra razza manderanno in malora questo paese"
 
 (salvato come [[Visione al cimitero]] negli oggetti)

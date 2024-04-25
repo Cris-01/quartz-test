@@ -4,7 +4,7 @@
 
 [[Colonnello Napoleon DeWolfe]] ex-militare in pensione
 
-[[Theodor Miller]] antiquario, proprietario del negozio “Il Bazar delle ere”
+[[Theodore Miller]] antiquario, proprietario del negozio “Il Bazar delle ere”
 
 [[Mago Crisantemo]] sedicente indovino che vende i suoi servigi per un “giusto” prezzo
 
@@ -18,7 +18,7 @@ Omicidi:
 
 [[O’Brian Joseph]] 9 ottobre, trovato morto vicolo
 
-[[Henry Ruthfild]] 18 ottobre, trovato morto in casa buttato su un materasso
+[[Henry Ruthfield]] 18 ottobre, trovato morto in casa buttato su un materasso
 
 (Nota: entrerà in vigore tra pochi mesi la legge sul proibizionismo, Legge Woldstat 28 ottobre)
 

@@ -29,7 +29,7 @@ Ispezionando la banca si scopre che la signorina Lane aveva tanti oggetti costos
 
 Il vice-direttore ha le sue chiavi.
 
-Il direttore no. Interrogato, [[Theodor Miller]] nota che il suo fazzoletto è sporco del rossetto che usa la signorina Lane. Dopo essere incalzato dai pg, il direttore confessa di essere stato sedotto da Elizabeth per essere derubato delle sue chiavi. Non sa niente degli oggetti di valore della Lane. Non glieli ha regalati lui
+Il direttore no. Interrogato, [[Theodore Miller]] nota che il suo fazzoletto è sporco del rossetto che usa la signorina Lane. Dopo essere incalzato dai pg, il direttore confessa di essere stato sedotto da Elizabeth per essere derubato delle sue chiavi. Non sa niente degli oggetti di valore della Lane. Non glieli ha regalati lui
 
 Oggetti trovati vicino al corpo della Lane:
 

@@ -5,7 +5,7 @@ Alle 19.30 ci avviamo verso il [[Locale Zagara]].
 Il [[Mago Crisantemo]] decide di andare separatamente con un taxi per imbucarsi al locale. Prima di uscire scopre da [[Kevin, dipendente dell'hotel]] che lo Zagara è di proprietà di un certo [[Liam Moore, co-proprietario dello Zagara]]. Il mago promette a Kevin che gli verrà data una mancia dall'ispettore Gallo; Kevin non è molto convinto che verrà ricompensato.
 Nel tratto in taxi il mago si ferma al semaforo davanti alla [[Banca]], notando che è ancora sorvegliata dalla polizia.
 
-Noi altri ([[Theodor Miller]], [[Colonnello Napoleon DeWolfe]], [[Ispettore Vasco Gallo]]), arriviamo un po' prima al locale con la nostra macchina.
+Noi altri ([[Theodore Miller]], [[Colonnello Napoleon DeWolfe]], [[Ispettore Vasco Gallo]]), arriviamo un po' prima al locale con la nostra macchina.
 Entrati nel locale non c'è nessuno all'ingresso ad accogliere a quell'ora ma ci avviciniamo al barista posto dietro al bancone ([[Blaze, il barista]]).
 Blaze ci saluta allegro e ci offre subito dell'acqua con menta e limone per farci acclimatare. Scopriamo da lui che il [[Signor Pennisi]] è co-proprietario del locale. 
 Il Colonnello prova a corromperlo per avere informazioni su [[Elizabeth Lane]] ma il barista rifiuta la lauta mancia di 5 dollari. 
@@ -48,6 +48,7 @@ Poco dopo vediamo il Signor Moore passare per la sala ed andare dietro al palco 
 Durante questo periodo, nel camerino del mago entra il pianista Antonio Sorgentone per fare due chiacchiere con lui.
 Dopo una breve conversazione i due fanno conoscenza e il mago ottiene una descrizione fisica del Signor Pennisi:
 - barba pulita, capelli castani, sui 40 anni
+
 Inoltre scopre che il suo tavolo riservato è quello più a sinistra sotto il palco (tavolo con fiche nera; uno dei 5 presenti in prima fila). 
 Il mago esce ed inizia la sua esibizione (successo estremo).
 Durante l'esibizione scopriamo che il signor Pennisi è effettivamente presente e viene invitato dal mago a prendere parte allo spettacolo, ma purtroppo non riesce a persuaderlo.

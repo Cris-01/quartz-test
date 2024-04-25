@@ -3,8 +3,8 @@
 
 - Recap sessioni - [[Sessione 1]]
 - Luoghi - [[Hotel]]
-- NPC - [[Henry Ruthfild]]
+- NPC - [[Henry Ruthfield]]
 - Oggetti - [[Elenco cassetta di sicurezza]]
-- PG - [[Theodor Miller]]
+- PG - [[Theodore Miller]]
 
 
